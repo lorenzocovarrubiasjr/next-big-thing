@@ -1,1 +1,1 @@
-I just want to say thank You to the Lord Jesus Christ for bringing me this far. Until the death. 
+I just want to say thank You to the Lord Jesus Christ for bringing me this far. Until the death. Let everyday be a fragrance of thanksgiving to you. Let the collection of every moment paint a picture of worship!
